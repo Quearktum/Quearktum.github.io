@@ -1,1 +1,0 @@
-# Quearktum.github.io
